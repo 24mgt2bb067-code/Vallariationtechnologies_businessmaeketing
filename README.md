@@ -1,0 +1,2 @@
+# Vallariationtechnologies_businessmaeketing
+Marketing and business analysist
